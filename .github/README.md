@@ -1,14 +1,14 @@
 ━━━━━━━━━━━━━━━━━━━━
 
 <h2 align="center">
-    ──「 BROKEN ✘ ROBOT 」──
+    ──「 SOFI ✘ ROBOT 」──
 </h2>
 
 <p align="center">
   <img src="https://te.legra.ph/file/0a0ae56c4b0f81b4e4dd0.jpg">
 </p>
 
-_**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [BROKEN ✘ ROBOT](https://t.me/SOFiRObot)**_
+_**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [SOFI ✘ ROBOT](https://t.me/SOFiRObot)**_
 ━━━━━━━━━━━━━━━━━━━━
 
 <p align="center">
