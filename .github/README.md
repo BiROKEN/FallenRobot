@@ -104,6 +104,6 @@ Press `Ctrl+b` and then `d`
 - <b>[ᴀɴɪᴍᴇ ᴋᴀɪᴢᴏᴋᴜ](https://github.com/AnimeKaizoku)  ➻  [sᴀɪᴛᴀᴍᴀ ʀᴏʙᴏᴛ](https://github.com/AnimeKaizoku/SaitamaRobot) </b>
 - <b>[ʜᴀᴍᴋᴇʀ ᴄᴀᴛ](https://github.com/TheHamkerCat)  ➻  [ᴡɪʟʟɪᴀᴍ ʙᴜᴛᴄʜᴇʀ](https://github.com/TheHamkerCat/WilliamButcherBot) </b>
  
-<b>ᴀɴᴅ ᴀʟʟ [ᴛʜᴇ ᴄᴏɴᴛʀɪʙᴜᴛᴏʀs](https://github.com/YEWRBROKEN9/FallenRobot/graphs/contributors) ᴡʜᴏ ʜᴇʟᴩᴇᴅ ɪɴ ᴍᴀᴋɪɴɢ BROKEN ✘ ROBOT ᴜsᴇғᴜʟ & ᴩᴏᴡᴇʀғᴜʟ 🖤 </b>
+<b>ᴀɴᴅ ᴀʟʟ [ᴛʜᴇ ᴄᴏɴᴛʀɪʙᴜᴛᴏʀs](https://github.com/YEWRBROKEN9/FallenRobot/graphs/contributors) ᴡʜᴏ ʜᴇʟᴩᴇᴅ ɪɴ ᴍᴀᴋɪɴɢ SOFI ✘ ROBOT ᴜsᴇғᴜʟ & ᴩᴏᴡᴇʀғᴜʟ 🖤 </b>
 
 ━━━━━━━━━━━━━━━━━━━━
